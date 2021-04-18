@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @obladiobladada
+- 👀 I’m watching you
+- 🌱 I’m currently learning how to grow plants
+- 💞️ I’m looking to collaborate on new heart condition emojis
+- 📫 How to reach me ... please don't 
